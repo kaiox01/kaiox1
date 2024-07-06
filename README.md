@@ -8,3 +8,6 @@ Utilizo esse espaço para minha organização e compartilhamento dos meus projet
  VOCÊ PODE ENTRAR EM CONTATO COMIGO
 
  kaio.henrique.vieira.antunes@escola.pr.gov.br
+
+ ![](https://media.tenor.com/KyQn8EktSfsAAAAM/cassio-guitarra.gif)
+ 
